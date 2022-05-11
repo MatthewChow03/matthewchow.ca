@@ -1,1 +1,1 @@
-[matthewchow.ca](www.matthewchow.ca)
+[matthewchow.ca](http://www.matthewchow.ca)
